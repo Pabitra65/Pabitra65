@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing games and watching football and love to do activities like cycling,workout,etc.
 - 🌱 I’m currently pursuing Bachelor of Computer Application.
 - 💞️ I’m looking to collaborate with best Internship which helps me to gain a lot of exeperience and various aspects.
-- 📫 How to reach me : Contact me through email - giripabitrakumar3@gmail.com .
+- 📫 How to reach me : Contact me through My Insta I'd - pabitra_65 .
 - ⚡ Fun fact: Impossible is Nothing
 
 <!---
